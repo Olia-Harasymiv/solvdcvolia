@@ -40,6 +40,6 @@ on Prometheus (June-July2020)
 
 Drohobych State Pedagogical University
 (2009-2014)
-Hobbies
-
+Hobbies:
+cycling, reading
 
