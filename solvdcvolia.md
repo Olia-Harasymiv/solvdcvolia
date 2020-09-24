@@ -4,7 +4,7 @@ Contact information
 Phone: 0983490041
 Email:olia.apple@gmail.com
 Skype:Olia Harasymiv
-
+Telegram @OliaHarasymiv
 
 *Summary of Qualifications*
 Master’s degree
